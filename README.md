@@ -1,1 +1,2 @@
-https://github.com/203027023/decide
+MERHABA HOCAM BEN 203027023 NUMARALI ÖĞRENCİNİZ ENES AYDIN BU LİNKE TIKLAYIP ÖDEVİME ULAŞABİLİRSİNİZ https://github.com/203027023/decide
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------------
